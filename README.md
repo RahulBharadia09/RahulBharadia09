@@ -7,7 +7,6 @@
 
 - 📄 Know about my experiences [https://tinyurl.com/yhd8npjv](https://tinyurl.com/yhd8npjv)
 
-- ⚡ Fun fact **Don't Just Learn. Play!**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
