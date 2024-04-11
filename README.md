@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **http://portfolio09.s3-website.ap-south-1.amazonaws.com/**
 
-- 📄 Know about my experiences [https://tinyurl.com/yhd8npjv](https://tinyurl.com/yhd8npjv)
+- 📄 Know about my experiences [https://tinyurl.com/rahulbharadia])
 
 
 <h3 align="left">Connect with me:</h3>
